@@ -1,1 +1,1 @@
-# CC-2
+# CC-2 Laboratio
